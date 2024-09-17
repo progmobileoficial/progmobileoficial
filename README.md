@@ -1,0 +1,6 @@
+- 👻 Olá, sou @progmobileoficial 👋
+- 👀 Estou interessado em desenvolvimento de software e novas tecnologias.
+- 🌱 Atualmente estou aprendendo sobre frameworks e linguagens de programação.
+- 💞️ Estou procurando colaborar em projetos de código aberto.
+- 😄 Pronomes: 💤
+- ⚡ Curiosidade: Gosto de resolver problemas complexos e aprender constantemente.
